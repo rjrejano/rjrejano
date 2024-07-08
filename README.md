@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning anything interesting.
 - 🌱 I’m currently learning ai chatbots.
 - 💞️ I’m looking to collaborate on Voiceflow projects.
-- 📫 You can reach me at rj
+- 📫 You can reach me at rj@boons.net
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
